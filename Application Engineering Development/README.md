@@ -1,2 +1,0 @@
-# Inteliigent_MediBuddy
-
